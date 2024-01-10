@@ -1,5 +1,6 @@
 ## 杭州有啥好玩的呢？  
 
+UPD: 98挖坟挖到这么个玩意 [cc98](https://www.cc98.org/topic/5062163)  主打一个有现成的为什么要自己整理（bushi
 
 1. 撸猫🐱 or 撸狗🐶    
 一些大众点评上的高分猫咖/狗咖  
@@ -71,6 +72,8 @@
 
 12. 相声  
     [笑海相声](https://m.damai.cn/damai/detail/item.html?utm=&itemId=703038161856&from=appshare)
+13. 密室逃脱  
+    虽然但是，俩怂逼估计玩不了（
 
 ### 一些奇怪的想法
 
